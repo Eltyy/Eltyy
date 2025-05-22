@@ -26,7 +26,7 @@
     <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
-<p align="left"><img src="https://files.catbox.moe/y3lw4i.png" width="300"> <img src="https://files.catbox.moe/v5vsrz.png" width="300"> <img src="https://files.catbox.moe/idps66.png" width="300"
+<p align="left"><img src="https://files.catbox.moe/y3lw4i.png" width="200"> <img src="https://files.catbox.moe/v5vsrz.png" width="200"> <img src="https://files.catbox.moe/idps66.png" width="200"
 
 <h1 align="center"></[](h)>
     <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
