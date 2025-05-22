@@ -30,9 +30,7 @@
 
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ 
-  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
-  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
-  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ 
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
   <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
 </h1> 
