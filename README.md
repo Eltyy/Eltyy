@@ -1,31 +1,48 @@
-## Hi there 👋
 
-<h1 align="center"></[](i)>
-
-
-[. ❀ . ](htt)
-
+<h1 align="center"></[](i)>    $${\color{orange}      ╚»★«╝    ‎ ‎ ‎ ‎      ‎ ‎ ‎ ‎   ‎  ‎ ‎   ‎    ‎       ℰ𝓁𝓉𝓎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎      ╚»★«╝ }$$  
+  
+<p align="center"> $${\color{orange}╚»★«╝}$$
+</p>
 
 </h1>
 
-<p align="center"><img src="https://i.imgur.com/dLcLEQ2.png&=80" width="600">
+
+<p align="center"><img src="https://files.catbox.moe/cla5m2.png" width="1000">
   
-<p align="center"> o𝗳𝗳𝘁𝗮𝗯 + 𝗮𝗳𝗸 𝗮𝗹𝗼𝘁 𝘀𝗼 𝗽𝗹𝘀 𝘂𝘀𝗲 𝘄𝗵𝗶𝘀𝗽𝗲𝗿 !
-
-<p align="center"> 𝗦𝗹𝗼𝘄 𝗿𝗲𝗽𝗹𝘆 𝗼𝗿 𝗻𝗼 𝗿𝗲𝗽𝗹𝘆 . 𝗟𝗲𝗮𝘃𝗲 𝗺𝘀𝗴 𝗶𝗻 𝗿𝗲𝘁𝗿𝗼𝘀𝗽𝗿𝗶𝗻𝗴 𝗶𝗻𝘀𝘁𝗲𝗮𝗱 ✻
-
-    
-<p align="center">✻  𝗙𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗶𝗻𝘁 𝗜 𝗱𝗼𝗻'𝘁 𝗯𝗶𝘁𝗲 :𝗗𝗗
-
-<p align="center"><img src="https://i.imgur.com/3HNDQbW.png&=80" width="600">
+<p align="center"> ★彡 𝓗𝓲! 𝓘 𝓵𝓲𝓴𝓮 𝓶𝓮𝓮𝓽𝓲𝓷𝓰 𝓷𝓮𝔀 𝓹𝓮𝓸𝓹𝓵𝓮 𝓪𝓷𝓭 𝓱𝓪𝓿𝓲𝓷𝓰 𝓭𝓮𝓮𝓹 𝓽𝓪𝓵𝓴𝓼, 𝓭𝓸𝓷'𝓽 𝓫𝓮 𝓪𝓯𝓻𝓪𝓲𝓭 𝓽𝓸 𝓽𝓪𝓵𝓴 𝓽𝓸 𝓶𝓮 :) 彡★
+  <p align="center"> 𝓘𝓯 𝓘 𝓭𝓸𝓷'𝓽 𝓻𝓮𝓹𝓵𝔂 𝓘 𝓶𝓪𝔂 𝓫𝓮 𝓪𝓯𝓴 
+<p align="center">
+    <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ 
+<p align="left"> ✦ 𝓒𝓱𝓮𝓬𝓴 𝓸𝓾𝓽 𝓶𝔂 𝓸𝓽𝓱𝓮𝓻 𝓼𝓲𝓽𝓮𝓼:‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ 
+ ‎  ‎ 
+<p align="left"> --- 𝓼𝓹𝓪𝓬𝓮𝓱𝓮𝔂 (𝓲𝓷 𝓹𝓻𝓸𝓰𝓻𝓮𝓼𝓼) ---
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ 
+<p align="left"> --- 𝓻𝓮𝓷𝓽𝓻𝔂 (𝓲𝓷 𝓹𝓻𝓸𝓰𝓻𝓮𝓼𝓼) ---
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ 
+<p align="left"> --- 𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮 (𝓲𝓷 𝓹𝓻𝓸𝓰𝓻𝓮𝓼𝓼) ---
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
+<p align="center"><img src="https://files.catbox.moe/rs2a4i.png" width="500">‎  ‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ 
+    <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
+<p align="left"><img src="https://files.catbox.moe/y3lw4i.png" width="300"> <img src="https://files.catbox.moe/v5vsrz.png" width="300"> <img src="https://files.catbox.moe/idps66.png" width="300"
 
 <h1 align="center"></[](h)>
+    <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1500&pause=1000&color=EB6F20&background=FFFFFF00&width=435&lines=%F0%9D%95%8B%F0%9D%95%99%F0%9D%95%96+%F0%9D%94%BD%F0%9D%95%A3%F0%9D%95%A6%F0%9D%95%9A%F0%9D%95%A5+%F0%9D%95%A0%F0%9D%95%97+%F0%9D%95%83%F0%9D%95%9A%F0%9D%95%97%F0%9D%95%96+%F0%9D%95%9A%F0%9D%95%A4+%F0%9D%95%99%F0%9D%95%96%F0%9D%95%9D%F0%9D%95%95+%F0%9D%95%93%F0%9D%95%AA+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%96+%F0%9D%94%B8%F0%9D%95%9F%F0%9D%95%98%F0%9D%95%96%F0%9D%95%9D%F0%9D%95%A4.;%F0%9D%95%8B%F0%9D%95%99%F0%9D%95%96+%F0%9D%94%BD%F0%9D%95%A3%F0%9D%95%A6%F0%9D%95%9A%F0%9D%95%A5+%F0%9D%95%A0%F0%9D%95%97+%F0%9D%95%8E%F0%9D%95%9A%F0%9D%95%A4%F0%9D%95%95%F0%9D%95%A0%F0%9D%95%9E+%F0%9D%95%9A%F0%9D%95%A4+%F0%9D%95%99%F0%9D%95%96%F0%9D%95%9D%F0%9D%95%95+%F0%9D%95%93%F0%9D%95%AA+%F0%9D%95%84%F0%9D%95%92%F0%9D%95%9F;%F0%9D%94%BC%F0%9D%95%8D%F0%9D%94%B8+%F0%9D%95%8C%F0%9D%95%9F%F0%9D%95%9A%F0%9D%95%A5+%F0%9D%9F%98%F0%9D%9F%99+%F0%9D%95%9F%F0%9D%95%A0%F0%9D%95%A8+%F0%9D%95%A1%F0%9D%95%A0%F0%9D%95%A4%F0%9D%95%A4%F0%9D%95%96%F0%9D%95%A4%F0%9D%95%A4%F0%9D%95%96%F0%9D%95%A4+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%96%F0%9D%95%9E+%F0%9D%95%93%F0%9D%95%A0%F0%9D%95%A5%F0%9D%95%99%2C;%F0%9D%95%92%F0%9D%95%9F%F0%9D%95%95+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%96%F0%9D%95%A3%F0%9D%95%96%F0%9D%95%97%F0%9D%95%A0%F0%9D%95%A3%F0%9D%95%96+%F0%9D%95%93%F0%9D%95%96%F0%9D%95%94%F0%9D%95%A0%F0%9D%95%9E%F0%9D%95%96%F0%9D%95%A4+%F0%9D%94%BE%F0%9D%95%A0%F0%9D%95%95.;%E2%84%95%F0%9D%95%A0%F0%9D%95%A8+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%96+%F0%9D%95%A4%F0%9D%95%A0%F0%9D%95%A6%F0%9D%95%A3%F0%9D%95%94%F0%9D%95%96+%F0%9D%95%A0%F0%9D%95%97+%F0%9D%95%92%F0%9D%95%9D%F0%9D%95%9D+%F0%9D%95%A4%F0%9D%95%A0%F0%9D%95%A6%F0%9D%95%9D%F0%9D%95%A4+-+;%F0%9D%95%8B%F0%9D%95%99%F0%9D%95%96+%F0%9D%95%8B%F0%9D%95%A3%F0%9D%95%96%F0%9D%95%96+%F0%9D%95%A0%F0%9D%95%97+%F0%9D%95%83%F0%9D%95%9A%F0%9D%95%97%F0%9D%95%96+-+%F0%9D%95%99%F0%9D%95%92%F0%9D%95%A4+%F0%9D%95%93%F0%9D%95%96%F0%9D%95%96%F0%9D%95%9F+%F0%9D%95%97%F0%9D%95%A0%F0%9D%95%A3%F0%9D%95%9E%F0%9D%95%96%F0%9D%95%95.;%F0%9D%95%8E%F0%9D%95%9A%F0%9D%95%9D%F0%9D%95%9D+%F0%9D%95%9A%F0%9D%95%A5+%F0%9D%95%93%F0%9D%95%96+%F0%9D%95%92%F0%9D%95%9F+%F0%9D%94%B8%F0%9D%95%A3%F0%9D%95%9C+%F0%9D%95%A5%F0%9D%95%A0+%F0%9D%95%A4%F0%9D%95%92%F0%9D%95%A7%F0%9D%95%96+%F0%9D%95%84%F0%9D%95%92%F0%9D%95%9F%F0%9D%95%9C%F0%9D%95%9A%F0%9D%95%9F%F0%9D%95%95+;%F0%9D%95%97%F0%9D%95%A3%F0%9D%95%A0%F0%9D%95%9E+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%96+%F0%9D%95%A7%F0%9D%95%92%F0%9D%95%94%F0%9D%95%A6%F0%9D%95%A6%F0%9D%95%9E+%F0%9D%95%A0%F0%9D%95%97+%F0%9D%95%8B%F0%9D%95%99%F0%9D%95%9A%F0%9D%95%A3%F0%9D%95%95+%F0%9D%95%80%F0%9D%95%9E%F0%9D%95%A1%F0%9D%95%92%F0%9D%95%94%F0%9D%95%A5%3F;%F0%9D%95%86%F0%9D%95%A3+%F0%9D%95%9A%F0%9D%95%A4+%F0%9D%95%9A%F0%9D%95%A5+%F0%9D%95%92+%F0%9D%95%95%F0%9D%95%96%F0%9D%95%9E%F0%9D%95%A0%F0%9D%95%9F+%F0%9D%95%A5%F0%9D%95%99%F0%9D%95%92%F0%9D%95%A5+%F0%9D%95%A8%F0%9D%95%9A%F0%9D%95%9D%F0%9D%95%9D+%F0%9D%95%95%F0%9D%95%96%F0%9D%95%A4%F0%9D%95%A5%F0%9D%95%A3%F0%9D%95%A0%F0%9D%95%AA+%F0%9D%95%A6%F0%9D%95%A4%3F;%F0%9D%95%84%F0%9D%95%92%F0%9D%95%9F%F0%9D%95%9C%F0%9D%95%9A%F0%9D%95%9F%F0%9D%95%95'%F0%9D%95%A4+%F0%9D%95%97%F0%9D%95%92%F0%9D%95%A5%F0%9D%95%96+%F0%9D%95%9D%F0%9D%95%9A%F0%9D%95%96%F0%9D%95%A4+%F0%9D%95%9A%F0%9D%95%9F+%F0%9D%95%8A%F0%9D%95%99%F0%9D%95%9A%F0%9D%95%9F%F0%9D%95%9B%F0%9D%95%9A'%F0%9D%95%A4+%F0%9D%95%99%F0%9D%95%92%F0%9D%95%9F%F0%9D%95%95%F0%9D%95%A4." alt="Typing SVG" /></a>
 
-[retrospring](https://pronouns.cc/@kureomi)
-
-[❁ rentry](https://rentry.co/lunnae)
-
-</h1>
-
-  
-<p align="center"><img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
+      <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎   
+  <p align="center"> ‎ ‎ ‎ ‎‎ ‎ ‎
+</h1>        $${\color{pink} *•.¸♡ 𝒯𝒽𝒶𝓃𝓀𝓈‎ ‎ ‎ ‎ ‎ ‎‎ ‎  𝒻𝑜𝓇 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 𝓋𝒾𝓈𝒾𝓉𝒾𝓃𝑔 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 𝓂𝓎 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 𝑔𝒾𝓉𝒽𝓊𝒷!!‎ ‎ ‎ ‎ ‎ ‎‎ ‎  :𝒟 ♡¸.•*}$$
+<p align="center"><img src="https://files.catbox.moe/jc8zkx.png" width="600">
